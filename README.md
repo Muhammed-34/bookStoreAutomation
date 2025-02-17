@@ -1,0 +1,1 @@
+# Grup-2_MVCCORE_PROJE
